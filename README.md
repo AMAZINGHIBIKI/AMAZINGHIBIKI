@@ -4,12 +4,11 @@ src="https://pbs.twimg.com/media/EYFwYyCWsAQHI7j?format=jpg&name=large" | width=
 </p>
 
 <p align="center">
-  HIHI! Name's Aretino, but most people call me Spin/Spinny! I'm fine with any nicknames as long as they are appropriate!! If you're from Pony Town, I usually stay around phighting area along with someone very special <3 Feel free to hmu with messages! ( Though whispers are suggested because I won't see public notifications. ) Only drag me around if ya need something!! ( I have a tini bit of issues with signals, so it's a little hard for me to venture around! ) If I happen not to respond, I'm away from the computer!
+  Hi! Name's Reverie, but most people call me Spin/Spinny because of my discord username, people call me pixel or shovel too, haha. I'm fine with any nicknames as long as they are appropriate!! I use any pronouns, feel free to refer me as any pronouns you like to see me as. If you're from Pony Town, I usually appear anywhere, just kinda in the game if my partner is there. Mostly idling from pt, so whisper if you want to talk, it gives notifications! 
 </p>
 <p align="center">
-  I LIKE ENSTARS and my fav/comfort character is WATARU!!!! HE'S SO COOL!!1 BUT YEAH, my main interest is ensemble stars. I'm also into DAYS UNION (DU) and created some ocs!! Keep in mind that I don't support the admins. I also play HSR! Other fandoms I'm in but not really into by now are DBH, R1999 and more that I don't recall.
-  Still discussing interests, I like studying psychology such as MBTI, enneagrams, and many more. I'm an INFJ, 6w5. 
+  Discussing interests, I like studying psychology such as MBTI, enneagrams, and many more. I'm an INTJ, 6w5. 
 </p>
 <p align="center">
-  I might be a little dry sometimes, so bear with me!! Oh yeah, some add-ons, I'm an artist who draws OCS mostly but sometimes fanart too!! 
-Yeah, I think that's all I can say for now, I'll add more if I have some in mind!! Overall, nice to meet you! Have a great day!!!!!1
+  Text might be a dry to keep my energy constant, so please don't perceive it as rude. Oh yeah, some add-ons, I'm an artist who draws OCS mostly but sometimes fanart too!
+Yeah, I think that's all I can say for now, I'll add more if I have some in mind!! Overall, nice to meet you! Have a great day!!
