@@ -10,5 +10,5 @@ src="https://pbs.twimg.com/media/EYFwYyCWsAQHI7j?format=jpg&name=large" | width=
   Discussing interests, I like studying psychology such as MBTI, enneagrams, and many more. I'm an INTJ, 6w5. 
 </p>
 <p align="center">
-  Text might be a dry to keep my energy constant, so please don't perceive it as rude. Oh yeah, some add-ons, I'm an artist who draws OCS mostly but sometimes fanart too!
+  Text might be dry to keep my energy constant, so please don't perceive it as rude. Oh yeah, some add-ons, I'm an artist who draws OCS mostly but sometimes fanart too!
 Yeah, I think that's all I can say for now, I'll add more if I have some in mind!! Overall, nice to meet you! Have a great day!!
