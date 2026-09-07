@@ -4,7 +4,7 @@ src="https://pbs.twimg.com/media/EYFwYyCWsAQHI7j?format=jpg&name=large" | width=
 </p>
 
 <p align="center">
-  Hi! Name's Reverie, but most people call me Salvius, Spinny, or Reverie itself! People sometimes call me pixel or shovel too, haha. I'm fine with any nicknames as long as they are appropriate!! I use any pronouns, feel free to refer me as any pronouns you like to see me as. If you're from Pony Town, I usually appear anywhere, just kinda in the game if my friend that i love and adore is there. Mostly idling from pt, so whisper if you want to talk, it gives notifications! 
+  Hi! Name's Reverie, but most people call me Salvius, Spinny, or Reverie itself! People sometimes call me pixel or shovel too, haha. I'm fine with any nicknames as long as they are appropriate!! I use any pronouns, feel free to refer me as any pronouns you like to see me as. If you're from Pony Town, I usually appear anywhere. Mostly idling from pt, so whisper if you want to talk, it gives notifications! 
 </p>
 <p align="center">
   Discussing interests, I like studying psychology such as MBTI, enneagrams, and many more. I'm an INTJ, 5w6 
